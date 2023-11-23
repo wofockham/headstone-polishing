@@ -1,4 +1,4 @@
-# Headstone Polishing
+# Headstone Polishing Crypto Blockchain Startup
 
 An exciting new startup that uses the blockchain to polish headstones.
 
