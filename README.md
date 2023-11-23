@@ -7,3 +7,5 @@ Give your loved ones the dignity they deserve.
 BUt also profit from the blockchain.
 
 Coming soon.
+
+💀☠️🏴‍☠️
